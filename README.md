@@ -1,0 +1,1 @@
+# Modelagem-Grafica-das-Equacoes-de-Meinhard-Gierer
